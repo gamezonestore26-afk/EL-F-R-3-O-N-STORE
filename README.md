@@ -1,1 +1,0 @@
-# EL-F-R-3-O-N-STORE
